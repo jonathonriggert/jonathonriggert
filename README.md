@@ -1,4 +1,4 @@
-## Husband | Future Dad | Servant Leader | AV-IT Enthusiast | DevOps Project Manager | Concert Goer | Serious Seeker
+## Husband | Dad | Servant Leader | AV-IT Enthusiast | DevOps Project Manager | Concert Goer | Serious Seeker
 
 My passion for quality, care for people, and attention to detail drives an intentionality that enhances an organization's ability to tell it's unique story—without compromise and while maintaining priorities and values. Let me be a part of your story! I've had the privilege of learning and serving toward a common goal: aligning people and processes to achieve big-picture outcomes for non-profits, small businesses, and large enterprises. It's not just about the destination; it's about the journey.
 
