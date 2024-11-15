@@ -7,8 +7,8 @@ At the end of the day, I strive to be known as a servant leader who is grounded,
 ---
 
 ### Currently Learning: 
-- Full Stack Web Development (The Odin Project / Boot.Dev)
-- Project Management (Google PM Coursera / Project Management Institute)
+- Project Management (PMP Certification) through PMI
+- Google Project Management Course / Google IT Support Fundamentals
 - Linux (Learn Linux TV / LPI)
 
 <!--
